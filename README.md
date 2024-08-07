@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @stockhoe
-- 👀 I enjoy ... working out, music, video games, spicy margaritas and sunshine
-- 📖 I’m currently reading ... Game of Thrones - George R.R. Martin
+- 👀 I enjoy ... working out, hiking, music, video games, spicy margaritas and sunshine
+- 📖 I’m currently reading ... Game of Thrones - George R.R. Martin & The Henna Artist - Alka Joshi
 - 💞️ I’m looking to collaborate on ... everything and anything - I am new and looking to learn!
 - 📫 How to reach me ... slack, email (erika@dev-pro.ca)
 - 😄 Pronouns: ... she/her
